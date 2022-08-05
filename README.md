@@ -1,4 +1,6 @@
 # insta.tipps.de - Posts
+#### Update 05.08. 22:00 Uhr
+Ich glaube nicht, dass hier noch etwas kommt. Ich beende hiermit das Warten.
 #### Update 11.06. 19:20 Uhr
 Ich habe jetzt "Einspruch" eingelegt gegen die Löschung meines Kontos, mal schauen was da rauskommt.
 ### [DE]   
